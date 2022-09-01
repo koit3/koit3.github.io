@@ -1,3 +1,3 @@
 ## Koit
 
-A serial entrepreneur and former CTO of VR/web3 game company.
+Building a web3 platform bridging Virtual and Real | Serial entrepreneur in Silicon Valley | Engineering founder
